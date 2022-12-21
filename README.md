@@ -1,0 +1,2 @@
+# E-TL-TOKEN
+HERKESE AÇIK
